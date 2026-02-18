@@ -7,6 +7,3 @@ These days I'm working with:
 * C for coursework
 * Small projects to practice and improve
 
----
-
-Feel free to reach out: [Instagram](https://instagram.com/saiidb_) • [Email](mailto:saidbouazabia05@gmail.com)
